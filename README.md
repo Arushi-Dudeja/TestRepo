@@ -1,5 +1,4 @@
-# Happy Birthday Sourya!
+# Happy Birthday Jaskaran!!
 There's a video in this Github repo.
 
-Hope it makes you smile :)
-I love you! <3
+Hope it makes you smile :) <3
